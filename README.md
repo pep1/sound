@@ -15,13 +15,23 @@ Loungesound während dem Essen
 	* Caravan Palace
 * 90er
 	* Old School Dance HipHop
-	* 
+	* House of Pain
+	* Vicarious
+* HipHop
+	* Jay Z - Sunshine
 * Helene Fischer: Atemlos
 * CCR
 * Beatles
+* Bob Dylan
+* Tito & Tarantula
 * Muschitechno
 	* Asiv Avidan
-	* 
+* Aktuelle Dance Charts:
+	* Pharrel - Happy
+	* Get lucky
+	* MGMT
+	* Daft Punk
+	* Macklemore - Thrift Shop
 
 #### Must Haves
 
