@@ -7,37 +7,52 @@ Loungesound während dem Essen
 * Jazz
 * Massive Attack
 * DJ Shadow
+* Aphex Twin - Windowlicker
 
 #### nach dem Essen
 
 * Übergang
 	* Elektro Swing
 	* Caravan Palace
+
 * 90er
 	* Old School Dance HipHop
 	* House of Pain
-	* Vicarious
+	* Tool - Vicarious
+	* Fatboy Slim
+
 * HipHop
 	* Jay Z - Sunshine
-* Helene Fischer: Atemlos
-* CCR
-* Beatles
-* Bob Dylan
-* Tito & Tarantula
+
+* Rock & Pop
+	* CCR
+	* Beatles
+	* Bob Dylan
+	* Tito & Tarantula
+
 * Muschitechno
 	* Asiv Avidan
+
 * Aktuelle Dance Charts:
 	* Pharrel - Happy
 	* Get lucky
 	* MGMT
 	* Daft Punk
 	* Macklemore - Thrift Shop
+	* Coldplay
+
+* Grauslichkeiten
+	* Helene Fischer: Atemlos
 
 #### Must Haves
 
 * Banana Fishbones - Come to sin
 * Us3 - Cantaloop
-* 
+* The Roots - The Seed 2.0
+* Peter Fox - Haus am See, Alles Neu
+* Foster The People - Pumped Up Kicks
+* Anita Kelsey - Sway
+* Cake - I Will Survive
 
 #### später & Rausschmeißer
 
