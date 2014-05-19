@@ -24,14 +24,21 @@ Loungesound während dem Essen
 * HipHop
 	* Jay Z - Sunshine
 
+* Dreampop
+	* M83
+
 * Rock & Pop
 	* CCR
 	* Beatles
 	* Bob Dylan
 	* Tito & Tarantula
+	* Radiohead
+	* Smashing Pumpkins
+	* Peter Bjorn n John
 
 * Muschitechno
 	* Asiv Avidan
+	* Jan Blomqvist
 
 * Aktuelle Dance Charts:
 	* Pharrel - Happy
