@@ -53,6 +53,7 @@ Loungesound während dem Essen
 * Foster The People - Pumped Up Kicks
 * Anita Kelsey - Sway
 * Cake - I Will Survive
+* David Hasselhoff
 
 #### später & Rausschmeißer
 
