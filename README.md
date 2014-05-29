@@ -47,6 +47,9 @@ Loungesound während dem Essen
 	* Daft Punk
 	* Macklemore - Thrift Shop
 	* Coldplay
+	* Icona Pop
+		* I love it
+		* Manners
 
 * Grauslichkeiten
 	* Helene Fischer: Atemlos
